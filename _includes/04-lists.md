@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+* Delaware Water Gap 🌳
+* Harriman State Park 🦋
+* Catskill Mountains 🍩
