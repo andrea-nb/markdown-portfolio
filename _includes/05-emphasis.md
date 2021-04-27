@@ -1,0 +1,2 @@
+*Italic **bold** Italic* Regular
+🛰️
